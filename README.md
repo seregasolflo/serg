@@ -1,0 +1,1 @@
+pitatsa shoto sozdat
