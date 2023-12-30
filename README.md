@@ -1,1 +1,1 @@
-pitatsa shoto sozdat
+pitatsa shoto sozdat. Vrode shoto polushaetsa
